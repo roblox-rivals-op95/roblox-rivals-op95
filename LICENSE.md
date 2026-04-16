@@ -1,4 +1,4 @@
-
+stealth roblox catch a monster Script | one-hit kill + auto-sell is the best roblox catch a monster Script, featuring one-hit kill and auto-sell.
 
 
 ---
